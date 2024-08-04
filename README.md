@@ -1,2 +1,2 @@
-call me yiinz or coconut
-i like strawberry cake
+● call me yiinz or coconut
+● i like strawberry cake
